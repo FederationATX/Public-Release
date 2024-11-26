@@ -1,4 +1,4 @@
-The book available (download here) on this site describes the following:
+The free book 'Federation ATX' available for download here describes the following:
 
 1 )  Archeological and geographic evidence of a direct connection between Native American tribes and NGC-2264, a cluster of stars in the constellation Monoceros.
 
